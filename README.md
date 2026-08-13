@@ -26,3 +26,5 @@ El Fenómeno de El Niño afecta principalmente al **clima, el océano, la agricu
 ## 📌 Resumen
 
 El Fenómeno de El Niño es un fenómeno climático que puede generar importantes cambios en las condiciones del océano y la atmósfera. Sus efectos pueden causar **problemas ambientales, sociales y económicos**, especialmente en las zonas más vulnerables.
+
+VUIGGOGUUIUUGUUIKUI
