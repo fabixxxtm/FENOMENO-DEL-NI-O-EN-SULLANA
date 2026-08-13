@@ -23,8 +23,16 @@ El Fenómeno de El Niño afecta principalmente al **clima, el océano, la agricu
 - 💰 Pérdidas económicas para las comunidades.
 - 🦠 Mayor riesgo de algunas enfermedades después de inundaciones.
 
-## 📌 Resumen
+## 🌱 Cuidemos nuestra ciudad
 
-El Fenómeno de El Niño es un fenómeno climático que puede generar importantes cambios en las condiciones del océano y la atmósfera. Sus efectos pueden causar **problemas ambientales, sociales y económicos**, especialmente en las zonas más vulnerables.
+La prevención no depende únicamente de las autoridades. Cada ciudadano puede contribuir manteniendo limpios los espacios públicos, evitando arrojar residuos en zonas de drenaje y colaborando con su comunidad.
 
-VUIGGOGUUIUUGUUIKUI
+## 💡 Objetivo
+
+Este proyecto busca **informar y orientar a los habitantes de Sullana** sobre el Fenómeno de El Niño y fomentar una cultura de prevención frente a posibles eventos climáticos.
+
+---
+
+### 📢 ¡Sullana preparada, Sullana segura!
+
+**Infórmate • Previene • Actúa**
